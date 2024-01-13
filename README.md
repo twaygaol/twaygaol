@@ -5,11 +5,6 @@ hi, I'm [Tway wandiky lumban gaol](https://twaygaol.me/), can be called [tway](h
 - 💼 any freelance work? do reach, email : lumbangaoltway616@gmail.com)
 - 💬 ask me about anything, i am happy to help;
 
-**languages and tools:**  
-
-
-📊 **this week i spent my time on:**
-
 
 
 
